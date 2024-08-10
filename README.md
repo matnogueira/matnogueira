@@ -9,5 +9,3 @@ Meu nome é Matheus Nogueira!
 ## Você pode entrar em contato comigo! 📫
 
 _matheusnogueiradofrades@gmail.com_
-
-![](https://tenor.com/pt-BR/view/surprised-scott-pilgrim-scott-pilgrim-takes-off-amazed-shocked-gif-2366745527718560234)
